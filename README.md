@@ -1,0 +1,5 @@
+- 👋 Hi, I am irfan razzaq.
+- 👀 I’m interested in artificial inteligence online remote jobs.
+- 🌱 I’m currently learning artificial inteligence.
+- 💞️ I’m looking to collaborate on 
+- 📫 my email.irfanirfanrazzaq345@gmail.com.
